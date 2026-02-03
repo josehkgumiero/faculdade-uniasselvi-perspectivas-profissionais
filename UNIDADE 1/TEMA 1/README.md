@@ -1,7 +1,5 @@
 # Tema 1
-
 # ASSUMINDO O CONTROLE: MINHA VIDA, MINHA HISTÓRIA
-
 Entenda a importância crucial do plano estratégico pessoal como sua bússola para realizar sonhos e metas. Vamos diferenciar sucesso de prosperidade, cultivando uma mentalidade de crescimento constante. A autorresponsabilidade é a chave para desbloquear o potencial pessoal. Reflita sobre as diferentes áreas da sua vida.
 
 Palavras-chaves: plano estratégico pessoal, sonhos, metas, sucesso, prosperidade, mentalidade, autorresponsabilidade, áreas da vida.
