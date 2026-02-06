@@ -125,3 +125,20 @@ Trata-se da aprendizagem por descobertas, em que você é o participante ativo d
 Com tantas oportunidades disponíveis, faz-se necessário que nos desenvolvamos em novas frentes, tais como estudos, profissão e carreira.
 
 Para monitorar a inovação, é preciso reconhecer as fontes de oportunidades inovadoras.
+
+Fontes de oportunidades inovadoras:
+- o inesperado
+- a incongruência
+- necessidade de processo
+- mudança na estrutura
+- mudanças demográficas
+- mudanças em percepção
+- conhecimento novo
+
+### EMPREENDEDORISMO COMO CARREIRA
+
+Repensar na carreira e partir para o empreededorismo. A capacidade de assumir risco e tramitar por novos papéis é uma atitude para aqueles que almejam abrir o próprio negócio.
+
+Será que você consegue perceber o quanto as mudanças são positivas enquanto geradoras de oportunidades que podem ampliar a sua carreira?
+
+Destacar não apenas a visão do empreendedorismo como oportunidades que se abrem, mas como algo advindo das necessidades que esses cenários acarretam, fazendo com que as pessoas precisem realmente empreender.
